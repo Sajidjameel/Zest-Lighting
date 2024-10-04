@@ -1,4 +1,4 @@
-# Zest-Lighting# Zest Lighting: Premium Designer Lighting Solutions for Residential & Commercial Spaces
+# Zest Lighting: Premium Designer Lighting Solutions for Residential & Commercial Spaces
 
 ![Artboard 1 (12)](https://github.com/user-attachments/assets/a7a5f1f4-cceb-4cb5-9a0f-5a75fa94c472)
 
